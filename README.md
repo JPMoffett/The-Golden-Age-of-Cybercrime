@@ -7,3 +7,5 @@ creating incentives for both innovation and exploitation to cybercriminals now u
 In both ages, volatility and expertise collide to produce new forms of power, resistance, and opportunity in the spaces traditional authorities struggle to control; 
 eventually ending in a massive increase in governance by the powers that be.
 A Golden Age of Cybercrime is nearing. 
+
+https://jpmoffett.github.io/The-Golden-Age-of-Cybercrime/
